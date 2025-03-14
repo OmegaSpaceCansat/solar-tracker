@@ -1,0 +1,1 @@
+Aquí encontraras las imágenes del equipo
